@@ -1,0 +1,2 @@
+# ymgkodv
+ymgk ödevi
